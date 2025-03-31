@@ -1,5 +1,5 @@
 # eta
-[Verse 1: Hyein, Haerin, Danielle, Hanni]
+PLEAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAASE
 Nangbihaji ma ne siganeun eunhaeng
 Seodulleoseo jeongnihae gyaeneun real bad
 Badajumyeon andwae
