@@ -1,6 +1,6 @@
 # eta
 PLEAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAASE
-Nangbihaji ma ne siganeun eunhaeng
+PLEAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAASE
 Seodulleoseo jeongnihae gyaeneun real bad
 Badajumyeon andwae
 No, you better trust me
